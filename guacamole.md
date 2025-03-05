@@ -3,7 +3,7 @@
 ## Ingredients
 
 * Avocado
-* Lemon
+* Lime
 * Salt
 * Corriander
 * Chilli
